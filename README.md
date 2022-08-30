@@ -1,4 +1,4 @@
-# Processo Seletivo Pucrs/Dell IT ACADEMY
+# Programa IT Academy – Processo Seletivo – Edição #15
 
 Autor: João Pedro de Moura Medeiros
 
